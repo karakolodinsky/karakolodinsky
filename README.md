@@ -1,6 +1,8 @@
-![image](https://github.com/karakolodinsky/karakolodinsky/blob/main/colorswap%20(1).gif)  my name kara i like the web  
+my name kara i like the web  
 ![image](https://github.com/karakolodinsky/karakolodinsky/blob/main/Choi94.gif)
 ![image](https://github.com/karakolodinsky/karakolodinsky/blob/main/colorswap.gif)
+   
+![image](https://github.com/karakolodinsky/karakolodinsky/blob/main/colorswap%20(1).gif)  
 
 
 <!--

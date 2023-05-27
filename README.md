@@ -1,5 +1,10 @@
 my name kara i like the web
 
+![image](https://github.com/karakolodinsky/karakolodinsky/assets/78918170/ff5c816b-999d-4e78-825f-2d480dda4a18)
+![image](https://github.com/karakolodinsky/karakolodinsky/assets/78918170/5645ab53-85bd-474e-8a74-78e7ebe7d876)
+![image](https://github.com/karakolodinsky/karakolodinsky/assets/78918170/cb13a5c9-8b0e-4ec6-9585-69d3d25f3162)
+
+
 <!--
 **karakolodinsky/karakolodinsky** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 

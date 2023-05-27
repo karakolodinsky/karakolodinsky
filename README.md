@@ -1,4 +1,4 @@
-![image](https://github.com/karakolodinsky/karakolodinsky/blob/main/Choi94.gif) my name kara i like the web
+![image](https://github.com/karakolodinsky/karakolodinsky/blob/main/Choi94.gif)i am kara & i enjoy the world wide web
 ![image](https://github.com/karakolodinsky/karakolodinsky/blob/main/colorswap.gif)
    
 ![image](https://github.com/karakolodinsky/karakolodinsky/blob/main/colorswap%20(1).gif)  
